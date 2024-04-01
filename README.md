@@ -1,1 +1,1 @@
-# Sumamry of Learning in Module 8
+# Sumamry of Learnings in Module 8
